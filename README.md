@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alphakennyn
+- 👋 Hi, I’m Kenny!
 - 📫 How to reach me @ alphakennyn@gmail.com
 
 <!---
